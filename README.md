@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hi 👋 , I'm Marcos, <br>I'm 20 years old and I'm currently a technology student at Fatec. <br>I'm passionate about the world of technology and I'm always willing to take on new challenges.
+Hi 👋 , I'm Marcos, <br>I'm 21 years old and I'm currently a technology student at Fatec. <br>I'm passionate about the world of technology and I'm always willing to take on new challenges.
 
 
 ## 🌐 Socials:
